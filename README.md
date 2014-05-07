@@ -9,29 +9,3 @@ For the details of the license, please visit http://creativecommons.org/licenses
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-For those who didn't read the license(I know you guys well), commercial usage of pics is allowed.
